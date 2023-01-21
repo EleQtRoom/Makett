@@ -1,0 +1,1 @@
+Dioramas elements (WC furnitures)  by Sir_Joe on Thingiverse: https://www.thingiverse.com/thing:3741764
