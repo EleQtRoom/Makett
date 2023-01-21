@@ -1,0 +1,1 @@
+Big L Sofa Playmobil compatible by SxCo on Thingiverse: https://www.thingiverse.com/thing:3526063
